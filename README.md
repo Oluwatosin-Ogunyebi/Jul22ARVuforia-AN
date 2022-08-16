@@ -1,0 +1,1 @@
+# Jul22ARVuforia-AN
